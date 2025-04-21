@@ -1,2 +1,2 @@
 # self-coherence-therapy
-Self coherence therapy: personal guidelines
+Personal guidelines about self applied coherence therapy
